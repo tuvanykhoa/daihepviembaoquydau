@@ -127,6 +127,13 @@ Những bệnh rối loạn tác dụng tình dục do dài bao quy đầu
 Viêm bao quy đầu là gì? Tại sao bị viêm bao quy đầu?
 -----
 
+.. image:: https://d3cdtxx03omvla.cloudfront.net/48002022_1570764285009.jpg
+	:height: 378px 	
+	:width: 474px
+	:scale: 50 %
+	:alt: Viêm bao quy đầu
+	:align: center
+
 **Viêm bao quy đầu đầu "cậu nhỏ"** là căn bệnh diễn tiến chậm và không có sức tàn phá khu vực kín và chức năng sinh lý một cách mau chóng. Song *viêm nhiễm bao quy đầu* lâu ngày sẽ bỏ lại một số hậu quả nặng nề đến sức khỏe cùng với chất lượng cuộc sống của phái mạnh.
 
 
