@@ -1,14 +1,14 @@
-# Tại sao bị viêm bao quy đầu? Dài, hẹp bao quy đầu có cần cắt không?
+#Tại sao bị viêm bao quy đầu? Dài, hẹp bao quy đầu có cần cắt không?
 
 *Dài, hẹp bao quy đầu là gì? Có cần cắt da bao quy đầu không? Tại sao bị viêm bao quy đầu?*. Đây là những vấn đề chung của nam giới khi bị chứng bệnh **dài, hẹp, viêm bao quy đầu**
 
 **Da bao quy đầu** là vùng da bao quanh "cậu nhỏ". Khu vực da này bao trọn quanh đầu "cậu nhỏ" lúc nam giới còn nhỏ thường hay sẽ tự động **lột quy đầu** xuống khoảng thời gian từ 4 - 5 tuổi. Nhưng, lúc đến mức độ tuổi mới lớn mà da bao quy đầu vẫn chưa tự lột xuống, thì có nguy cơ cần phải can thiệp với **phẫu thuật tiểu phẫu cắt bao quy đầu**.
 
-# Cắt da bao quy đầu là gì?
+#Cắt da bao quy đầu là gì?
 
 Cắt bao da quy đầu là phẫu thuật cắt bỏ phần da bọc đầu của dương vật. Thủ thuật này có thể được làm trên người lớn hoặc trẻ nhỏ. Với trẻ em, **tiểu phẫu cắt bao da quy đầu** thường hay được tiến hành nếu trẻ khỏe mạnh. Với người trưởng thành, **tiểu phẫu cắt bao quy đầu** thường hay được thực hiện khi đấng mày râu nhận thấy bệnh **viêm bao quy đầu**, **bao quy đầu hẹp** (khi da bao quy đầu không lột hoàn toàn khỏi quy đầu), hay **dài da bao quy đầu** (khi bao quy đầu chưa thể lột xuống). Chính vì vậy, chúng ta nên đến cơ sở y tế để được tư vấn *phẫu thuật tiểu phẫu cắt bao quy đầu* để tránh những biến chứng khó lường như **viêm bao quy đầu**
 
-# Hẹp bao quy đầu là gì?
+#Hẹp bao quy đầu là gì?
 
 Trẻ lúc còn nhỏ đa số mắc *bao quy đầu hẹp* sinh dục, song kèm theo thời gian, bao quy đầu sẽ tách khỏi dương vật mà không cần can thiệp. Nếu vệ sinh cơ quan sinh sản liên tiếp tốt thì trẻ sẽ có khả năng tự khỏi **hẹp bao quy đầu**, dương vật tự khắc *lột bao quy đầu*.
 
@@ -16,7 +16,7 @@ Trẻ lúc còn nhỏ đa số mắc *bao quy đầu hẹp* sinh dục, song kè
 
 Đa số nam trẻ nhỏ sinh ra đều mắc *bao quy đầu hẹp*, khi trưởng thành quy đầu sẽ tự lột ra. Tình huống da đầu "cậu bé" không tự lột ra, sẽ nên làm **tiểu phẫu cắt bao da quy đầu**. Lưu ý khi *lột da bao quy đầu* của trẻ xuống lúc tắm từ lúc trẻ còn nhỏ, Nếu mà đến trên 10 tuổi mà quy đầu vẫn chưa được lột xuống thì nên gặp bác sĩ để **tư vấn phẫu thuật cắt bao quy đầu** hiệu quả, an toàn.
 
-## Bệnh hẹp bao quy đầu có nguy hại không?
+##Bệnh hẹp bao quy đầu có nguy hại không?
 
 Nếu không *chữa, cắt hẹp bao quy đầu* kịp thời, bệnh *hẹp bao quy đầu ở nam giới*, đặc biệt là trẻ nhỏ có nguy cơ bỏ lại một số tai biến đáng tiếc lên sức khỏe của bản thân như:
 
@@ -50,7 +50,7 @@ Hẹp bao quy đầu sinh lý chiếm hầu hết một số trường hợp, l�
 
 Bao quy đầu bị hẹp bệnh lí ít gặp hơn là mức độ hẹp thực quá trình bởi vì sẹo xơ gây nên dính da bao quy đầu. Mức độ sẹo xơ có khả năng bởi bẩm sinh hay vì viêm nhiễm dẫn đến **hẹp bao quy đầu**
 
-## Thành phần khả năng rất dễ bị bệnh hẹp bao quy đầu là những ai?
+##Thành phần khả năng rất dễ bị bệnh hẹp bao quy đầu là những ai?
 
 Các nhân tố khả năng gây nên hiện tượng *hẹp bao quy đầu* bao gồm:
 
@@ -66,7 +66,7 @@ Các nhân tố khả năng gây nên hiện tượng *hẹp bao quy đầu* bao
 
 Để có thể tránh được tình trạng **viêm nhiễm** do *hẹp bao quy đầu* gây ra, điều cần thiết nhất là đến cơ sở y tế uy tín để các bác sĩ **tư vấn cắt hẹp bao quy đầu**
 
-# Dài bao quy đầu
+#Dài bao quy đầu
 
 Chứng **dài bao quy đầu** là 1 hội chứng về bao da quy đầu cực kỳ thường bắt gặp tại phái mạnh. **Bao quy đầu dài** vô cùng dễ dẫn tới nhiễm trùng, các tai biến bệnh nam khoa nguy hiểm nếu không chữa trị dài bao quy đầu kịp thời
 
@@ -92,7 +92,7 @@ Tăng khả năng viêm nhiễm, vô sinh – hiếm muộn: **Dài hẹp bao qu
 
 Ung thư dương vật: tác nhân là vì **viêm nhiễm bao quy đầu** ở đầu "cậu nhỏ" cùng với *da bao quy đầu* kéo dài không *điều trị viêm bao quy đầu* kịp thời dẫn tới nhiễm trùng quay trở lại nhiều lần, rất dễ hình thành tế bào lạ dẫn đến ung thư "cậu nhỏ".
 
-### Những bệnh rối loạn tác dụng tình dục do dài bao quy đầu
+###Những bệnh rối loạn tác dụng tình dục do dài bao quy đầu
 
 + Căng tức "cậu bé" khi cương: bởi bao quy đầu dài/hẹp, đầu "cậu bé" không bài tiết ra khỏi được da bao quy đầu, làm giảm cực khoái chẩn đoán hai giới lúc "yêu" tình dục, gây nên bệnh rối loạn cương dương.
 
@@ -108,7 +108,7 @@ Ung thư dương vật: tác nhân là vì **viêm nhiễm bao quy đầu** ở 
 
 + Viêm nhiễm sang bạn tình: **bao quy đầu dài gây viêm**; những tác nhân dẫn tới bệnh dễ thâm nhập vào "cô bé" chị em lúc "lâm trận" tình dục, khả năng gây: viêm âm hộ – âm hộ, viêm lộ tuyến cổ tử cung, viêm cổ tử cung… tác động đến sức khỏe cũng như chức năng có con.
 
-# Viêm bao quy đầu là gì? Tại sao bị viêm bao quy đầu?
+#Viêm bao quy đầu là gì? Tại sao bị viêm bao quy đầu?
 
 **Viêm bao quy đầu đầu "cậu nhỏ"** là căn bệnh diễn tiến chậm và không có sức tàn phá khu vực kín và chức năng sinh lý một cách mau chóng. Song *viêm nhiễm bao quy đầu* lâu ngày sẽ bỏ lại một số hậu quả nặng nề đến sức khỏe cùng với chất lượng cuộc sống của phái mạnh.
 
@@ -126,7 +126,7 @@ Hiện tượng v**iêm nhiễm bao quy đầu** khá hay gặp cùng với ti�
 
 Rửa ráy yếu là nguyên do thường bắt gặp nhất của **viêm bao da quy đầu**, Mặt khác những yếu tố gây bệnh khác biệt cũng có nguy cơ nói đến như nhiễm khuẩn hoặc nấm, nhiễm trùng đường niệu đạo, dị ứng da, chấn thương khu vực kín do đe dọa mạnh hay "yêu" tình dục không được bảo vệ.
 
-## Biến chứng của viêm bao quy đầu
+##Biến chứng của viêm bao quy đầu
 
 Bình thường, bệnh viêm nhiễm quy đầu không quá nghiêm trọng. Song, nếu mà không có những **cách chữa điều trị hẹp bao quy đầu** tích cực, hiện tượng này có khả năng gây biến đổi hình dáng "cậu bé", dẫn tới phồng rộp và lở loét. Đồng thời, những biến chứng nguy hại không giống bao gồm:
 
@@ -182,7 +182,7 @@ Bên cạnh đó, viêm bao quy đầu "cậu bé" mạn tính không có cách 
 
 Công dụng sinh lý của nam giới bị suy giảm không những gây nên tác động đến hạnh phúc lứa đôi bởi vì quan hệ vợ chồng suy nhược, mà lại khiến cho tâm lý bệnh nhân buồn chán bởi vì cảm thấy bất lực, lo lắng và suy sụp lâu ngày sẽ kéo theo không ít hậu quả xấu tới sức khỏe.
 
-Truyền nhiễm cho bạn tình
+**Truyền nhiễm cho bạn tình**
 
 Bạn nam bị **viêm bao quy đầu**,  đầu dương vật có khả năng lây truyền viêm nhiễm cho bạn tình thông qua quan hệ tình dục liên tục và không được bảo vệ. Cụ thể, người vợ cũng có thể bị lây nhiễm từ người nam, gây ra một số bệnh phụ khoa như: viêm nhiễm âm hộ, cổ tử cung, buồng trứng, vòi trứng, ... Nghiêm trọng nhất là biến chứng bệnh vô sinh chị em phụ nữ.
 
