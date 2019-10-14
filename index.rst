@@ -1,5 +1,4 @@
-=====
-Tại sao bị viêm bao quy đầu? Dài, hẹp bao quy đầu có cần cắt không?
+Tại sao bị viêm dài bao quy đầu?
 =====
 
 *Dài, hẹp bao quy đầu là gì? Có cần cắt da bao quy đầu không? Tại sao bị viêm bao quy đầu?*. Đây là những vấn đề chung của nam giới khi bị chứng bệnh **dài, hẹp, viêm bao quy đầu**
